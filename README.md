@@ -18,6 +18,4 @@ https://www.youtube.com/watch?v=58x8NTMkgHs
 
 ![jesus_lepreux_test_4_visages_face](https://github.com/user-attachments/assets/d439f4b5-cb2d-4d62-b143-dd6b9dbe3be1)
 
-![lepreux_test_1](https://github.com/user-attachments/assets/0fd78723-0640-4135-87dd-5062ae0a9b80)
-
 
