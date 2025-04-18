@@ -7,6 +7,8 @@ Au sein du studio, je travaille sur la direction artistique, avec une expertise 
 
 ![logo+phrase 01](https://github.com/user-attachments/assets/93a64dfa-bd0a-4b7d-9ebf-8859d28a62e6)
 
+https://www.studionawake.com/
+
 ## Exemple de création
 Nous avons réalisé un court-métrage animé, dont j'ai coréalisé le character design, les décors et les visuels tests.
 
